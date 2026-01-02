@@ -1,1 +1,1 @@
-this is hacket wallpaper
+this is hacked wallpaper
